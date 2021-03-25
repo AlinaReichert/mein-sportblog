@@ -1,0 +1,1 @@
+![Alina Reichert und eine Gruppe weiterer Fahrerinnen bei den Staatsmeisterschaften auf der Straße 2020](https://user-images.githubusercontent.com/57792578/112352465-11cf9a80-8ccb-11eb-8657-09deb942045f.jpg)
